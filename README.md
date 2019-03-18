@@ -12,3 +12,6 @@ FA '18 Symposium - https://docs.google.com/presentation/d/1jIpoXhnimiBXNmjO6gpDT
 
 FA '18 Final Presentation -
 https://docs.google.com/presentation/d/1tosiShdLSufXG5vJhBFZBOI37Nxsk2Qo-vDwjr8EY9Y/edit?usp=sharing
+
+
+SP '19 Symposium - https://docs.google.com/presentation/d/1B0wH5g9CNPTfIeSC1f0nKthk92Y2LRmoI0T4bCjYslQ/edit#slide=id.p5
