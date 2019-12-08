@@ -17,3 +17,5 @@ https://docs.google.com/presentation/d/1tosiShdLSufXG5vJhBFZBOI37Nxsk2Qo-vDwjr8E
 SP '19 Symposium - https://docs.google.com/presentation/d/1B0wH5g9CNPTfIeSC1f0nKthk92Y2LRmoI0T4bCjYslQ/edit#slide=id.p5
 
 FA '19 Symposium - https://docs.google.com/presentation/d/1zGvzGgxmlnL1itjmRMh1vznRDe0ZoPZw_RLhZW4raZY/edit?usp=sharing
+
+FA '19 Final -https://docs.google.com/presentation/d/1HUKfwgLhQ7YxZzXMuk8hW0gNPKhU2ZnP6EVM_tz-6Jw/edit?usp=sharing
